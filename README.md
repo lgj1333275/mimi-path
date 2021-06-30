@@ -1,2 +1,0 @@
-# mimi-path
-zxvxzvxzv
